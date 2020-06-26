@@ -9,3 +9,5 @@ Zur Not wird dieses auch durchgesetzt - und zwar mit Fäusten!
 * hilfsbereit
 
 > Butter ist Fett und Fett verklebt die Klumpozipien oder wie das heißt!
+
+<img src="https://www.napolike.it/wp-content/uploads/2018/06/Bud-Spencer.jpg"/>
