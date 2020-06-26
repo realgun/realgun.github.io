@@ -7,3 +7,5 @@ Zur Not wird dieses auch durchgesetzt - und zwar mit Fäusten!
 * ehrlich
 * fair
 * hilfsbereit
+
+> Butter ist Fett und Fett verklebt die Klumpozipien oder wie das heißt!
